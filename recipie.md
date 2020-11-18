@@ -1,0 +1,6 @@
+Recipie for cheese ravioli:
+Place 5 cups flour in a large bowl. Make a well in the center. Beat the eggs, water and oil; pour into well. Stir together, forming a ball. Turn onto a floured surface; knead until smooth and elastic, about 4-6 minutes, adding remaining flour if necessary to keep dough from sticking. Cover and let rest for 30 minutes.
+Meanwhile, in a Dutch oven, combine sauce ingredients. Bring to a boil. Reduce heat; cover and simmer for 1 hour, stirring occasionally.
+In a large bowl, combine filling ingredients. Cover and refrigerate until ready to use.
+Divide pasta dough into fourths; roll 1 portion to 1/16-in. thickness. (Keep pasta covered until ready to use.) Working quickly, place rounded teaspoonfuls of filling 1 in. apart over half of pasta sheet. Fold sheet over; press down to seal. Cut into squares with a pastry wheel. Repeat with remaining dough and filling.
+Bring a soup kettle of salted water to a boil. Add ravioli. Reduce heat to a gentle simmer; cook until ravioli float to the top and are tender, 1-2 minutes. Drain. Spoon sauce over ravioli.
